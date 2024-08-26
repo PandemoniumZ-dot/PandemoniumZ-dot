@@ -20,7 +20,7 @@ sonar studios games
 loomian legacy
 doodle world
 dead plate
-dandys world (DNI FANDOM OMG PLKEASE)
+dandys world (DNI fandom unless ik u)
 law of talos
 ugh what else do i add
 fin. 👅
