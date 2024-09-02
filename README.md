@@ -1,6 +1,4 @@
 ✧ COSMO - SCYTHE
-
-
 she/it
 ~~~ B4 INT ‼️
 DNI MEANS DNI!! unless friends
@@ -13,7 +11,6 @@ basic stuff
 anything viziepop (?wtv her name is)
 DSMP
 ra jokes
-![image](https://github.com/user-attachments/assets/5838b469-4fae-4924-900a-0f2a055f3424)
 FANDOMS
 phighting
 blocktales
