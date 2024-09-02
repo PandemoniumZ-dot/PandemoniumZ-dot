@@ -22,5 +22,4 @@ doodle world
 dead plate
 dandys world (DNI fandom unless ik u)
 law of talos
-ugh what else do i add
-fin. 👅
+
