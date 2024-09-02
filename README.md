@@ -1,5 +1,5 @@
 ✧ COSMO - SCYTHE
-![image](https://github.com/user-attachments/assets/0e306ecf-ff7a-42a0-a33c-ec0ab75ac598)
+
 
 she/it
 ~~~ B4 INT ‼️
@@ -13,7 +13,8 @@ basic stuff
 anything viziepop (?wtv her name is)
 DSMP
 ra jokes
-~~~ FANDOMS (*/ω＼*)
+![image](https://github.com/user-attachments/assets/5838b469-4fae-4924-900a-0f2a055f3424)
+FANDOMS
 phighting
 blocktales
 pressure
@@ -23,4 +24,4 @@ doodle world
 dead plate
 dandys world (DNI fandom unless ik u)
 law of talos
-
+obrjctfied , tfmi , object shows in general
