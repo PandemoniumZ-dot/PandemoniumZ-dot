@@ -1,5 +1,6 @@
 ✧ COSMO - SCYTHE
-~~~
+![image](https://github.com/user-attachments/assets/0e306ecf-ff7a-42a0-a33c-ec0ab75ac598)
+
 she/it
 ~~~ B4 INT ‼️
 DNI MEANS DNI!! unless friends
